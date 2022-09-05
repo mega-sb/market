@@ -1,8 +1,8 @@
 
 # MEGA DARKMARKET LINK
 
-[mega.sb](https://mega-sb.sbs/)
-[mega landing](https://mega-market.cc/)
+- [mega.sb](https://mega-sb.sbs/)
+- [mega лендинг](https://mega-market.cc/)
 
 ## Общие Правила Торговой Площадки MEGA.
 
